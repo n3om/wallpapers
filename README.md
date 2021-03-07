@@ -3,8 +3,7 @@
 
 ## Style of Wallpapers
 
-The majority of this wallpapers includes cyberpunk,dark,technology,animegirls.There might some
-abstract art too. 
+The majority of this wallpapers includes cyberpunk,dark,technology,animegirls,fanart and many more.There might some abstract art too. 
 
 ## Ownership
 
